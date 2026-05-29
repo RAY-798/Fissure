@@ -6,4 +6,4 @@
 送给霜，还有深水城：龙金劫的所有人
 
 游玩链接：
-https://RAY-798.github.io/Fissure/
+[https://RAY-798.github.io/Fissure/](https://ray-798.github.io/Fissure/index)
